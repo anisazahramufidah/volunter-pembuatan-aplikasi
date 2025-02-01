@@ -6,4 +6,6 @@ Silakan gunakan format berikut:<br>
 **\* Anisa Zahra Mufidah, [LinkedIn : Anisa Zahra Mufidah/GitHub : anisazahramufidah / Instagram : @anisaportofolio ](Alamat URL).**  
 
 Berikut adalah daftar Volunter yang diterima:
-* Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+* Anisa zahra, [oo.or.id](https://oo.or.id).
+* Gilang Ramadhan, [Linkedin](https://www.linkedin.com/in/gilang-adhan/).
+
